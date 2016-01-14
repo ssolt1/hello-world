@@ -3,4 +3,4 @@ New beginnings.
 
 Hello Humans,
 
-Taco's on the moon are far better than earth taco's.
+Remember, don't send a human to do a machine's job:-)
